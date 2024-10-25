@@ -1,6 +1,7 @@
 ### Olá (¬_¬)🫴🫀
 
-**peruca-espacial/peruca-espacial** É uma lugar maravilhoso e feito com muito amor. Realmente muito ✨ _especial_ ✨(Preciso de nota para não passar fome futuramente ☠️)
+**peruca-espacial/peruca-espacial** É uma lugar maravilhoso e feito com muito amor. Realmente muito ✨ _especial_ ✨
+(Preciso de nota para não passar fome futuramente ☠️)
 
 - 🔭 Atualmente estou cursando o terceirão.
 - 🌱 Tenho muito interesse na área de ciências biológicas.
